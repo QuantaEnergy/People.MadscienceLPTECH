@@ -1,1 +1,3 @@
 - [Free Energy Kromrey Converter Load Testing #engineering #freeenergy #prototype #howto #cleanenergy](https://www.youtube.com/shorts/INV-Ab5xj-s)
+- [Kromrey Converter](https://youtu.be/dPlKytCAetw)
+- [Kromrey Generator 2.0: Nikola Tesla's Method of Conversion!!!](https://youtu.be/fODa0A8vB3A)

@@ -1,2 +1,3 @@
+- [Bedini Pulse Motor Generator Circuitry (Free Energy Machine)](https://youtu.be/lhUKYBqAzJ0)
 - [The Device That Could Power The World - In My Garage](https://youtu.be/YAkkdGXs40c)
 - [They Said It Was Impossible We’re Building It Anyway](https://youtu.be/JGCoEQAaqrQ)

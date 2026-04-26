@@ -11,4 +11,4 @@ Profile:
 - https://instagram.com/madscience369
 - https://facebook.com/spencer.frame.545
 
-Crowdfunding: https://gofund.me/6512e74e
+Crowdfunding: https://www.gofundme.com/f/clean-energy-pulse-motor-opensource-science || Tracking: https://gofund.me/6512e74e
